@@ -1,15 +1,11 @@
 # Nahj al-balagha
 
-[First session -- It is in Persian](http://ali121.com/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF/%D8%B4%D8%B1%D8%AD_%D8%B5%D9%88%D8%AA%DB%8C_%D9%85%D9%82%D8%AF%D9%85%D9%87_%D9%86%D9%87%D8%AC%E2%80%8C%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%BA%D9%87.mp3). Contact me if you need help with translation.
+[First session -- It is in Persian](http://ali121.com/%D8%AF%D8%A7%D9%86%D9%84%D9%88%D8%AF/%D8%B4%D8%B1%D8%AD_%D8%B5%D9%88%D8%AA%DB%8C_%D9%85%D9%82%D8%AF%D9%85%D9%87_%D9%86%D9%87%D8%AC%E2%80%8C%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%BA%D9%87.mp3). Contact me if you need help with translation (It's format is mp3).
 
-What is Nahj al-balagha in its essence? It's speeches of a man who is heavenly and sage (very wise).
-
-Problems exists either due to stupidity or impurity (foulness).
-
-For solving issues we face only Nahj al-balagha has ample examples and solutions.
-
-If Nahj al-balagha was implemented in the society, people would expect clergymen to solve problems and monitor authorities, not to give them excuses.
-
+- What is Nahj al-balagha in its essence? It's speeches of a man who is heavenly and sage (very wise).
+- Problems exists either due to stupidity or impurity (foulness).
+- For solving issues we face only Nahj al-balagha has ample examples and solutions.
+- If Nahj al-balagha was implemented in the society, people would expect clergymen to solve problems and monitor authorities, not to give them excuses.
 - Problems are like spider webs. But these clergymen are weak.
 - Clergymen should not be influenced by money or tyrants.
 - Authorities should not have multiple roles.
