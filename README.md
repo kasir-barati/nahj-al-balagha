@@ -6,7 +6,7 @@
 
 # Intro
 
-You can find the introductory explanation in the [intro.md](./intro.md) file. It contains a very quick run over why we are doing this.
+You can find the introductory explanation in the [intro](./intro.md). It contains a very quick run over why we are doing this.
 
 # Speeches
 
